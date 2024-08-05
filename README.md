@@ -3,7 +3,6 @@
  The brain sillies!  
 Names & emojis ⬇️       
 🦈🔄 = Sharkshift.  
-⚔️💐 = Jerk/JeAREk.  
 🔪🙂 = Cheesewich.  
 🎭🎨 = Randomnoob (Main guy!)  
 🪲🎼 = Bug/Bugster.  
